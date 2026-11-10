@@ -11,6 +11,6 @@ i am a literal stuffed shark playing chess. my brain is made of cotton and i sti
 - **location:** ? <- probably blundering my queen in the marianas trench.
 
 ### ♟️ fight me
-if you want to witness true low-elo gameplay and watch me lose on time in a winning position, add me on chess.com: [paodequeijoindiano](https://www.chess.com/member/paodequeijoindiano)[cite: 1]. 
+if you want to witness true low-elo gameplay and watch me lose on time in a winning position, add me on chess.com: [paodequeijoindiano](https://www.chess.com/member/paodequeijoindiano). 
 
 yes, my username means indian cheese bread. no, i will not elaborate. don't expect any actual code here, just immaculate vibes and declining ELO.
